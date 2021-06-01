@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @UniqueCodeMaker
 - 👀 I’m interested in Developing something Unique and Helpful for everyone
-- 🌱 I’m currently learning Everything little little.
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently Working on Projects on my own.
+- 💞️ I’m looking to collaborate on Working wih Professionals building some unqiue project. 
 - 📫 How to reach me mr.rudraxmehta@gmail.com
 
 <!---
